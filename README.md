@@ -117,3 +117,12 @@ useful for **expansion**, **campaign targeting**, and **regional strategy**.
 * ⏱️ **45-day repurchase cycle** → strong engagement
 * ❌ **2.1% refund rate** → highly satisfied customers
 * 🌍 Global customer distribution reveals strong and emerging markets
+
+
+<img width="906" height="543" alt="Screenshot 2025-11-16 011639" src="https://github.com/user-attachments/assets/435aba48-2479-4e13-9430-46422015f1f6" />
+
+<img width="918" height="545" alt="Screenshot 2025-11-16 033242" src="https://github.com/user-attachments/assets/786ce0df-3f25-4ce2-90d4-76d78c1c2934" />
+
+<img width="909" height="545" alt="Screenshot 2025-11-16 011904" src="https://github.com/user-attachments/assets/62e67b0d-075a-4775-ae91-a7f159697ba0" />
+
+<img width="912" height="546" alt="Screenshot 2025-11-16 033039" src="https://github.com/user-attachments/assets/5d59f9c5-2823-46d3-a8d6-8435c116514d" />
