@@ -126,3 +126,10 @@ useful for **expansion**, **campaign targeting**, and **regional strategy**.
 <img width="909" height="545" alt="Screenshot 2025-11-16 011904" src="https://github.com/user-attachments/assets/62e67b0d-075a-4775-ae91-a7f159697ba0" />
 
 <img width="912" height="546" alt="Screenshot 2025-11-16 033039" src="https://github.com/user-attachments/assets/5d59f9c5-2823-46d3-a8d6-8435c116514d" />
+
+
+🤝 Connect With Me
+If you're interested in manufacturing analytics, dashboarding, or process optimization — let's connect!
+
+🔗 LinkedIn: https://www.linkedin.com/in/ankur-jain-1b85bb2b9/
+📧 Email: 27ankurjain@gmail.com
